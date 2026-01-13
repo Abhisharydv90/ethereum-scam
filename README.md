@@ -1,1 +1,0 @@
-# ethereum-scam
